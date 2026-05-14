@@ -1,4 +1,4 @@
-# 
+# top Pixelmator Pro for macOS Extension | auto-retouch + export to SVG offers the most advanced Pixelmator Pro for macOS extension, with auto-retouch and export to SVG. Ideal for
 
 
 
